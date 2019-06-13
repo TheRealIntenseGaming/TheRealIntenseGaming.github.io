@@ -1,1 +1,1 @@
-# intensity.github.io
+# TheRealIntenseGaming.github.io
